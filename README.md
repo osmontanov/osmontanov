@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @osmontanov
+- 👋 Hi, I’m Talgar Osmonov
